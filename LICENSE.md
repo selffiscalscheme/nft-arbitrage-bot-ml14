@@ -1,4 +1,4 @@
-# 
+# best nft arbitrage bot | bundle-transactions + NFT-sniping is the best nft arbitrage bot, featuring bundle-transactions and NFT-sniping. Fast, smart, and optimized for NFT trading
 
 
 
